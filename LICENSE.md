@@ -1,4 +1,4 @@
-
+Enhance Canva for macOS with exclusive Script for Canva for macOS - smart objects and content-aware fill, the #1 script. Includes smart objects and content-aware fill for a
 
 
 
